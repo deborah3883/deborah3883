@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @deborah3883
-- 👀 I’m interested in education sport zumba 
+- 👀 I’m interested in education  adolescenti sport zumba 
 - 🌱 I’m currently learning ..zumba fitness .
 - 💞️ I’m looking to collaborate on ...zumba 
 - 📫 How to reach me ...instagram twitter ,facebbok 
